@@ -1,4 +1,4 @@
-
+advanced break a brainrot egg Script is the best break a brainrot egg Script, featuring one-hit kill and custom skins. Safe and powerful for all your
 
 
 
